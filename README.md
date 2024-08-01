@@ -1,1 +1,1 @@
-- 📫 How to reach me discord: S1n1tsyn#2009
+- 📫 How to reach me tg: @AlohaDanceQQ
